@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @njeriviolet
 - 👀 I’m interested in ... coding 
-- 🌱 I’m currently learning .mit software development..
+-  currently.mit software development..
 - 💞️ I’m looking to collaborate on . different projects..
 - 📫 How to reach me ..@njeriviolet01@gmail.com /254791406511
 - 😄 Pronouns: ...she/her
